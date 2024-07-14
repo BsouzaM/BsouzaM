@@ -7,7 +7,7 @@
 
 📫 How to reach me: **[E-mail](mailto:bernardo_429@hotmail.com)**
 
-👨‍💻 You can check my art projects right here: [ArtStation](https://www.artstation.com/bsouzam)
+👨‍💻 You can check my art projects right here: [ArtStation](https://bsouza.artstation.com)
 
 🎮 Watch me live on Twitch: [Twitch](https://www.twitch.tv/KneezMzOfficial)
 
